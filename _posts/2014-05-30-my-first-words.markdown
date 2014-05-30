@@ -11,4 +11,8 @@ I guess the best thing to say is that I'm blogging and writing in less than
 
 Now...how do I save my work?
 
-Hmmmm
+Hmmmm...
+
+Aww, there it is...I like this one.
+
+Simple and easy to get the word out...whatevah that word is!
